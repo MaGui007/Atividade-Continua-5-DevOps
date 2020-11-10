@@ -9,3 +9,7 @@ Como Fazer um  otimo  churrasco
 6 – Acerte o volume de carne por pessoa
 7 – Faça uma lista das carnes que não podem faltar
 8 - Ouse grelhando frutas e vegetais
+
+
+Guilherme Maximiano Alves RA 1902691
+João Pedro de Souza 1903102
